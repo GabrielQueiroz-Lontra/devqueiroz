@@ -1,4 +1,4 @@
-# ᴅᴇᴠqᴜᴇɪʀᴏᴢ
+#  GabrielQueiroz-Lontra 
 ### _Oʟᴀ́ sᴏᴜ Gᴀʙʀɪᴇʟ Qᴜᴇɪʀᴏᴢ_
 
 [![Duolingo](https://img.shields.io/badge/Duolingo-%234DC730.svg?style=for-the-badge&logo=Duolingo&logoColor=white)](https://pt.duolingo.com/profile/LontraMagn)
